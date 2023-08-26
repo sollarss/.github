@@ -1,4 +1,5 @@
 🌞 **What is Solars?** 🌞
+
 Solars is a hosting and traffic brand that fulfills everything you need for your website. Here are the details:
 
 - **Active Discord Server Link:** 🔗
